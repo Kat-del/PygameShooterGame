@@ -1,2 +1,4 @@
 # PygameShooterGame
-rdxbckjgziodxlhvj
+Some information
+
+dsnnnfxlkmvnzdjkvnrdvn xkfjd vm
